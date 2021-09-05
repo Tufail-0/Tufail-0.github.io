@@ -1,6 +1,6 @@
-Thanks for downloading this template!
-
-Template Name: iPortfolio
-Template URL: https://bootstrapmade.com/iportfolio-bootstrap-portfolio-websites-template/
-Author: BootstrapMade.com
-License: https://bootstrapmade.com/license/
+Thanks for coming to my profile 
+I am Tufail baloch from Quetta pakistan
+Facebook id link is below 
+https://www.facebook.com/tufail.baloch.391
+Contact me on Instagram 
+Tufail_balush.
